@@ -5,7 +5,7 @@
 
 - 👀 I’m interested in **Software Engineering & Electronics & Communication Engineering**
 
-- 🔭 I'am working at **TechnoMasr**
+- 🔭 I'am working at **SRH Company in Saudi Arabia**
 
 - 📫 How to reach me **Eng.Muhammadabdulrazek@outlook.com**
 
